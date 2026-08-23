@@ -1,2 +1,2 @@
 # Computer-Science-3
-This serve as our Computer Science 3 Portfolio
+Althea Jean "Arje" D. Bangsara - 9 Helium
